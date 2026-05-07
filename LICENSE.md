@@ -1,4 +1,4 @@
-
+premium 3008 Script is the best 3008 Script, featuring one-hit kill and speed. Safe and powerful for all your needs.
 
 
 
